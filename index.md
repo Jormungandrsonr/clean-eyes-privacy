@@ -74,7 +74,7 @@ your buddy.
 
 ## Contact
 
-Questions or requests about your information: [CONTACT ADDRESS: fill in before publishing].
+Questions or requests about your information: cleaneyescontact1@gmail.com.
 
 If this policy changes, the date at the top changes, and any change that sends more information will only take
 effect if you choose it.
